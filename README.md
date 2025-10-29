@@ -24,4 +24,4 @@ My PhD research at Boston University centers on **Alzheimer’s disease genetics
 
 
 
-📫 **Contact:** [LinkedIn](https://linkedin.com/in/zainabkhurshid) | [Email me] (zainabk@bu.edu)
+📫 **Contact:** [LinkedIn](https://linkedin.com/in/zainab-khurshid) | [Email me] (zainabk@bu.edu)
